@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=gulshachawla2608&label=Profile%20views&color=0e75b6&style=flat" alt="gulshachawla2608" /> </p>
 
-- 🌱 I’m currently pursuing **my undergraduate degree in Computer Science & Engineering**
+- 🌱 I’m **a Software Engineer working as a Backend Developer**
 
 - 📫 How to reach me **gulshachawla2608@gmail.com**
 
