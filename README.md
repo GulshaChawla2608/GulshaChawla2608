@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **gulshachawla2608@gmail.com**
 
-- 📄 Know about my experiences: [Download Resume](https://drive.google.com/file/d/1_URpI9S4qxGgxxT-OrQnRdO0eY6Ob5aA/view?usp=sharing)
+- 📄 Know about my experiences: [Download Resume](https://drive.google.com/file/d/1aHojqRByjgoS_dpBGf0vVnueLmawNu5c/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
